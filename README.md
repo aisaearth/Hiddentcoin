@@ -1,0 +1,2 @@
+# Hiddentcoin
+Hiddentcoin
